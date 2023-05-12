@@ -1,8 +1,6 @@
 We're also Santa Claus!
 Ooh, name it after me! Ah, yes! John Quincy Adding Machine. He struck a chord with the voters when he pledged not to go on a killing spree. You're going to do his laundry? Please, Don-Bot… look into your hard drive, and open your mercy file!
 
-I just want to talk. It has nothing to do with mating. Fry, that doesn't make sense. You guys aren't Santa! You're not even robots. How dare you lie in front of Jesus? But I know you in the future. I cleaned your poop.
-
 Why, those are the Grunka-Lunkas! They work here in the Slurm factory.
 A sexy mistake. Well, thanks to the Internet, I'm now bored with sex. Is there a place on the web that panders to my lust for violence? Take me to your leader! Look, last night was a mistake. I'm a thing.
 
